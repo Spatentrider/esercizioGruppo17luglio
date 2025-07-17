@@ -1,0 +1,1 @@
+# esercizioGruppo17luglio
